@@ -1,3 +1,6 @@
+# Please add me as an Agent Developer [Published] on Discord, my discord username is alexongotos#9969
+
+
 # Pankakeswap Large Amount Extract Agent
 
 ## Description
